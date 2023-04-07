@@ -6,5 +6,4 @@ fedora
 queen
 tochi
 Army
-canada
-
+I have a good wife and kids
